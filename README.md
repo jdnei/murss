@@ -1,5 +1,5 @@
 
-# Murss穆尔斯机场官方地址(2026年10月27日更新)
+# Murss穆尔斯机场官方地址(2026年10月28日更新)
 Murss穆尔斯机场官网地址</br>
 官方地址：[www.murss.com](https://www.murss.com/#/register?code=Os19HGBG)</br>
 
