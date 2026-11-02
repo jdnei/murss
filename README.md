@@ -1,7 +1,7 @@
 
 # Murss穆尔斯机场官方地址(2026年11月1日更新)
 Murss穆尔斯机场官网地址</br>
-官方地址：[www.murss.com](https://www.murss.com/#/register?code=Os19HGBG)</br>
+官方地址：[www.murss.com](https://to.iix.im/mr01)</br>
 
 2026最新好用的机场推荐与节点分享：[https://github.com/jdnei/JiChangTuiJian](https://github.com/jdnei/JiChangTuiJian)</br>
 ## Telegram VPN 机场福利社 #AD
