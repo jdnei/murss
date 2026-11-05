@@ -1,7 +1,6 @@
  🇨🇳 [中文](README.md) | 🇺🇸 [English](README_EN.md) | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 فارسی
 
-# وب‌سایت رسمی Murss VPN (به‌روزرسانی ۱ نوامبر ۲۰۲۶)
-
+# وب‌سایت رسمی Murss VPN (به‌روزرسانی 4 نوامبر 2026)
 وب‌سایت رسمی Murss VPN<br>
 آدرس رسمی: [www.murss.com](https://to.iix.im/mr01)<br>
 
