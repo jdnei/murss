@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 English | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# Murss VPN Official Website (Updated November 13, 2026)
+# Murss VPN Official Website (Updated November 14, 2026)
 
 Official Murss VPN Website<br>
 Official URL: [www.murss.com](https://to.iix.im/mr01)<br>
